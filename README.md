@@ -1,8 +1,8 @@
 ### Boas vindas ao meu perfil 🖤
 
-Meu nome é Matheus Araújo 
+_Meu nome é_ **Matheus Araújo** 
 
-![](https://media.tenor.com/N6PMi0IvITAAAAAC/hi.gif)
+![](https://media.tenor.com/BMMh4OQs-uEAAAAd/tulla-luana.gif)
 
-
+![](https://media.tenor.com/kQNVHSi5J50AAAAC/funny-meme.gif)
 
